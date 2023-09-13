@@ -5,3 +5,4 @@
 - 📫 How to reach me: You can reach me through my Discord
 - 😄 Pronouns: they/she
 - ⚡ Fun fact: I come from Austria
+- 👤 Friends: [Mr-Bamboo-Forest](https://github.com/Mr-Bamboo-Forest)
